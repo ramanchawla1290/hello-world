@@ -9,4 +9,4 @@ If you do like my work, please feel to contact me in case you want to collaborat
 
 Wish you all the best for your goals.
 
-Stay Happy, Stay Healthy.
+Stay Happy. Stay Healthy.
